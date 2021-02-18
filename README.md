@@ -1,0 +1,2 @@
+# Resist
+Antagonizing
